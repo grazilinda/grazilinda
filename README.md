@@ -3,4 +3,3 @@
 - sou estudandante
 - sou do paraná <3
 - pretendo aprender com isso
-- 
